@@ -1,5 +1,5 @@
 
-# Professional Practices In Pakistan Tech Industry
+# Professional Practices In Pakistani Tech Industry
 
 In light of Professional Practices in Information Technology, we aim to conduct our research and perform real-time cases by selecting a company that we will talk about shortly. We have taken a particular area from our course that we are going to target and focus on. Based on that particular area, we will develop a questionnaire to ask them about the practices they currently follow in their organization and see how much they entail Professional Practices in their company’s administrative, business, and marketing policies.
 
