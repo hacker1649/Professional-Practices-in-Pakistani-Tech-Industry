@@ -13,8 +13,12 @@ Afiniti is a leading provider of customer experience (CX) and artificial intelli
 
 Founded in 2006, the company is headquartered in Hamilton, Bermuda.
 
+Reference: [Afiniti | LinkedIn Profile Page](https://www.linkedin.com/company/afiniti-com/)
+
 ## Target/Contact Person:
 
 The contact person that we have aimed to target is “Shamayel Atiq” from the company. He is currently the “Assistant Manager Talent Acquisition” in the company for about over two years.
 
 Being a highly experienced HR representative within the company, he handles a significant portion of professional matters concerning employees, new recruits, managers, and businesses. Consequently, he emerged as the most appropriate individual for us to engage in an interview, delving into various aspects such as HR, administrative policies, contracts, legal responsibilities, anti-discrimination measures, company registration, and employee advancement. We utilized a questionnaire to gather firsthand examples for our research on Professional Practices in Information Technology.
+
+Reference: [Shamayel Atiq | Assistant Manager Talent Acquisition at Afiniti](https://www.linkedin.com/in/shamayel-atiq-179b9612a/)
